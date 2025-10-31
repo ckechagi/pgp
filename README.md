@@ -1,4 +1,4 @@
-Welcome to Power Group Purchasing™ © and Governance Five™
+Welcome to Power Group Purchasing™ © and Governance Five™ ©
 
 A licensed social-enterprise system ensuring compliance in social value, intellectual property and copyright.
 Explore this website to see if you are operating compliantly, acquire your licence, and learn how transparent governance builds trust and accountability.
