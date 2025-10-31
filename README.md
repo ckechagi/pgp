@@ -5,4 +5,4 @@ Explore this website to see if you are operating compliantly, acquire your licen
 
 Celebrating 15 years of purpose-led governance – helping people, business, and government make fair, transparent decisions together.
 
-© 2010–2025 Power Group Purchasing™ © Governance Five™ · Use under licence only
+© 2010–2025 Power Group Purchasing™ © Governance Five™ ©· Use under licence only
